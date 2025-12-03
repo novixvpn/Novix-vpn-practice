@@ -1,1 +1,0 @@
-# Novix-vpn-practice
